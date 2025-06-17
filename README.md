@@ -1,5 +1,6 @@
 ## Hi i'm Freni Patel 👋
 [Freniptl07](https://linktr.ee/Freniptl07)
+[Email](patelfreni78@gmail.com)
 
 <!--
 **Freniptl07/Freniptl07** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
